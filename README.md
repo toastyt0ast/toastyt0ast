@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding and making websites for the kids at school
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on websites 
-- 📫 How to reach me 
+- 📫 How to reach me https://www.youtube.com/@EAT_EGGSHELLS
 - 😄 Pronouns: he him
 - ⚡ Fun fact: im cool
 
